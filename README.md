@@ -47,5 +47,18 @@ Frekuensi destruktif ini membawa pikiran menuju gangguan, ketidakharmonisan, dan
 Jika anda ingin mendengarkan music yang sering anda dengarkan dari frekuensi 440 Hz ke 432 Hz. Download saja aplikasi music player 432hz… 
 
 
+# hubungan angka dengan hertz
+Untung saja saya dilahirkan dengan angka 7 yang indah
+yang hanya mengunakan analisis dan logika serta pemikiran yang matang
+
+Coba saja bila saya bukan dengan angka tersebut bila saya sakit hati,tubuh saya akan ikut sakit juga
+
+Solusi bila sakit badan lakukan terapi bekam sebulan sekali atau 1 bulan 3 kali untuk mengendalikan sifat dan kontrol diri
+
+Seperti yang kakek saya bilang (dia seorang kedokteran yang handal)
+
+"Bila kamu sakit berobat lah  dengan kitabmu (al-qur'an),solusi kedua datangi anak panti, solusi ketiga gunakan obat alami atau sesuai sunnah, solusi ke empat obat dari benda bebas dari alam"
+
+
 
 
