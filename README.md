@@ -1,6 +1,13 @@
+
+
+
+
+
+
 # HERTZ
 Frekuenzi untuk mengobati,mengedalikan,memb....   (akan kita pelajari) ini catatan dari penelitian  saya
 
+# 3,6,9 metode pengatur,menguasai dalam 1 tahun maka otak akan lebih powerful dari biasanya
 
 # energi bebas
 Dan 432 hz saya setel dengan satu aplikasi untuk frekunzi,yang mana saya setel sewaktu tubuh saya sakit semua,besok paginya segar & fresh tubuh
