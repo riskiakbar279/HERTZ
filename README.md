@@ -61,4 +61,64 @@ Seperti yang kakek saya bilang (dia seorang kedokteran yang handal)
 
 
 
+Adapun kata bijak dari bapak super jenius nikola tesla
 
+1. Jika kau ingin menemukan rahasia di balik semesta, berpikirlah dalam terminologi energi, frekuensi, dan getaran.
+
+2. Kebajikan kita dan kegagalan kita tidak bisa dipisahkan, layaknya paksaan dan masalah. Ketika mereka dipisahkan, manusia tidak ada lagi.
+
+3. Saya tidak merasa kamu bisa menamakan penemuan-penemuan hebat yang sudah dibuat dari laki-laki yang sudah menikah.
+
+4. Otak saya hanyalah penerima, di semesta terdapat sebuah inti dari mana kita mendapatkan pengetahuan, kekuatan, dan inspirasi.
+
+5. Perasaan yang tumbuh terus-menerus di dalam diriku adalah bahwa saya yang pertama yang telah mendengarkan salam dari satu planet ke planet lain.
+
+6. Jika saja kamu tahu dari kebesaran dari 3,6, dan 9 maka kamu akan tahu kunci dari semesta.
+
+7. Itu bukan cinta yang kamu ciptakan. Itu adalah cinta yang kamu berikan.
+
+8. Insting adalah sesuatu yang melampaui pengetahuan. Kita memiliki, tanpa diragukan, serat halus tertentu yang memungkinkan kita melihat kebenaran ketika deduksi logis, atau usaha lain dari otak yang disengaja, adalah sia-sia.
+
+9. Begitu mencengangkan fakta dalam hubungan ini, bahwa sepertinya Tuhan sendiri telah menciptakan planet ini secara elektrik.
+
+10. Tentu saja beberapa planet tidak dihuni, tetapi ada yang lain dan beberapa dari mereka ada kehidupan di bawah semua kondisi dan dalam tahap pembangunan.
+
+11. Sewaktu saya melihat kembali kehidupan masa lampau saya, saya menyadari bahwa betapa halusnya pengaruh yang membentuk takdir kita.
+
+12. Hidup adalah dan akan selalu menjadi persamaan dari solusi yang tak dapat dipecahkan, tapi itu mengandung faktor-faktor tertentu yang diketahui.
+
+13. Individu adalah sementara, ras dan bangsa datang dan pergi, tapi manusia tetap ada.
+
+14. Penemuan adalah produk paling penting dari otak kreatif manusia. Tujuan utamanya adalah menguasai misteri pikiran atas material dunia secara utuh, pemanfaatan sifat manusia untuk kebutuhan manusia.
+
+15. Biarkanlah masa depan mengatakan kebenaran dan mengevaluasi berdasarkan pekerjaannya dan pencapaian. Saat ini adalah mereka, dan masa depan, untuk apa yang sudah saya kerjakan dengan sungguh-sungguh, adalah milik saya.
+
+16. Saya tidak peduli mereka mencuri ide saya, tapi saya peduli bahwa mereka tidak memiliki ide mereka sendiri.
+
+17. Saintis saat ini berpikir dalam daripada berpikir jelas. Seseorang haruslah waras untuk berpikir jelas, tapi seseorang dapat berpikir dalam dan menjadi agak gila.
+
+18. Kedamaian hanya datang sebagai konsekuensi natural dari pencerahan semesta dan penggabungan dari pertarungan dan kita masih jauh dari kesadaran penuh kebahagiaan.
+
+19. Hidup adalah dan akan selalu menjadi persamaan dari solusi yang tak dapat dipecahkan, tapi itu mengandung faktor-faktor tertentu yang diketahui.
+
+20. Sebagian besar orang terserap dalam kontemplasi tentang dunia luar tapi mereka sama sekali tidak menyadari apa yang terjadi di dalam diri mereka.
+
+21. Saya tidak peduli mereka mencuri ide saya. . Saya peduli bahwa mereka tidak memiliki salah satu dari mereka sendiri.
+
+22. Semua yang hebat di masa lalu diejek, dikutuk, diperangi, ditekan — hanya untuk muncul semakin kuat, semakin penuh kemenangan dari perjuangan.
+
+23. Kebajikan dan kegagalan kita tidak dapat dipisahkan, seperti kekuatan dan materi. Ketika mereka berpisah, manusia tidak ada lagi.
+
+24. Saya tidak berpikir Anda bisa menyebutkan banyak penemuan hebat yang telah dibuat oleh pria yang sudah menikah.
+
+25. Seseorang harus waras untuk berpikir jernih, tetapi seseorang dapat berpikir secara mendalam dan menjadi sangat gila.
+
+26. Jika kebencianmu bisa diubah menjadi listrik, itu akan menerangi seluruh dunia.
+
+27. Otak saya hanya penerima, di Semesta ada inti dari mana kita memperoleh pengetahuan, kekuatan, dan inspirasi. Saya belum menembus rahasia inti ini, tetapi saya tahu itu ada.
+
+28. Sendiri, itulah rahasia penemuan; menyendiri, saat itulah ide-ide lahir.
+
+29. Hidup adalah dan akan tetap menjadi persamaan yang tidak mampu dipecahkan, tetapi mengandung faktor-faktor tertentu yang diketahui.
+
+30. Kami mendambakan sensasi baru tetapi segera menjadi acuh tak acuh terhadapnya. Keajaiban kemarin adalah hari kejadian umum
