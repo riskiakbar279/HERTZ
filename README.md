@@ -9,12 +9,19 @@ Apakah ada daftar frekuensi penyembuhan solfeggio?
 Penasaran frekuensi penyembuhan mana yang harus dicoba terlebih dahulu? Ada beberapa frekuensi penyembuhan yang tersedia, tetapi di bawah ini adalah enam frekuensi solfeggio utama yang dikabarkan untuk menyeimbangkan pikiran, tubuh, dan jiwa.
 
 174Hz. Frekuensi ini melepaskan rasa sakit dan menyembuhkan aura sakit. Dapat mengurangi nyeri punggung, punggung bawah, kaki, dan kaki. 174 Hz juga menangani migrain dan stres. Ini menenangkan jaringan otak dan membangkitkan perasaan cinta, keberanian, keamanan, dan kepastian. 174 Hz menargetkan chakra dan bagian penyembuhan tubuh.
+
 396Hz . Suara ini dikatakan membantu menghilangkan rasa takut dan bersalah sekaligus membantu menyeimbangkan chakra akar untuk membantu Anda merasa lebih membumi. Itu juga dikenal untuk mengubah kesedihan menjadi kegembiraan dan memberi Anda dorongan yang Anda butuhkan untuk membantu Anda mencapai tujuan Anda.
+
 417Hz . Mendengarkan suara ini dipuji karena memfasilitasi perubahan pada tingkat fisik, termasuk tubuh fisik. Ini juga dikenal untuk membantu melarutkan perasaan trauma serta hambatan emosional apa pun. Ada yang bilang itu membawa awal baru untuk hidup.
+
 528Hz . Frekuensi ini dapat membantu mempromosikan keajaiban, kejelasan, dan kedamaian, serta transformasi seperti perbaikan DNA. Ini sering dikreditkan dengan membantu menghilangkan penyakit dan penyakit. Disebut not ajaib dan frekuensi cinta, dilaporkan membersihkan tubuh dari racun apa pun, mengantar cinta dan kepercayaan diri, dan menyeimbangkan chakra jantung dan solar plexus Anda.
+
 639Hz . Frekuensi ini dapat membantu untuk menyembuhkan dan meningkatkan hubungan dan menghubungkan kembali. Dikatakan untuk menghasilkan perasaan positif dan mendorong keharmonisan dan komunikasi yang jelas. Ini juga dapat membantu Anda membangun hubungan yang lebih baik dengan diri sendiri dan membantu Anda merenungkan apa yang paling penting bagi Anda.
+
 741Hz . Mendengarkan tingkat frekuensi solfeggio ini dilaporkan fantastis untuk menemukan berbagai solusi sekaligus memungkinkan Anda untuk sepenuhnya mengekspresikan diri Anda dengan jujur ​​dan/atau dengan cara baru. Ini juga dikabarkan meningkatkan stabilitas emosional, memberi Anda ruang dan keamanan untuk memanfaatkan intuisi Anda.
+
 852Hz . Frekuensi ini dikatakan membantu Anda terhubung ke intuisi Anda serta alam spiritual. Keuntungan lain? Ini mungkin mencegah Anda dari berpikir berlebihan dan menggali jauh ke dalam pola pikir negatif. Akibatnya, perasaan diri dan kekuatan batin Anda dikatakan meningkat, dan Anda mencapai tingkat energi dan kesadaran spiritual yang baru.
+
 963Hz. Frekuensi ini membangunkan intuisi dan cakra mahkota Anda. Ini adalah cara yang bagus untuk meningkatkan energi dan getaran positif Anda. Untuk melihat lebih dalam ke dalam diri Anda, 963 Hz membantu Anda terhubung dengan lebih baik ke dalam diri Anda dan mencapai keadaan vibrasi tertinggi Anda. Dalam suasana hati yang tepat, Anda bahkan dapat mencapai kesatuan dan perjalanan ke dunia spiritual. Frekuensi ini menyeimbangkan Anda dan juga membawa Anda ke keadaan asli dan sempurna Anda.
 
 
