@@ -5,6 +5,54 @@
 
 
 # HERTZ
+
+
+Frekuensi alam dan obsesi terhadap 3,6 dan 9
+432 Hz, dikenal sebagai Verdi's A, adalah nada matematis murni.
+
+Ini adalah penyeteman unggul yang membuat musik lebih mudah didengarkan dan lebih menyenangkan karena konsisten dengan pola alam semesta. Pada tingkat ini, tubuh dan pikiran kita bekerja dalam harmoni yang sempurna.
+
+Angka 432 dapat dilihat di banyak bangunan kuno.
+
+Saat memeriksa dataran tinggi Giza dan mengukur piramida besar, Anda akan mendapatkan banyak angka geometris. Menggunakan rasio 1: 432.000, piramida secara akurat mengukur dimensi planet kita dan tempat kita di alam semesta.
+
+Ini tidak hanya terjadi pada piramida besar, tetapi angka-angka ini telah disaksikan di sebagian besar struktur yang ditinggalkan peradaban kuno.
+
+Tesla terobsesi dengan mereka karena suatu alasan dan dia mendasarkan semua karyanya dan beberapa bagian hidupnya berdasarkan angka-angka ini.
+
+Annunaki mengajari kami matematika dan bahasa. Mereka tidak hanya memberi kita kemampuan untuk berkomunikasi tetapi melalui berbicara, kesadaran kita terjaga. Itu memungkinkan kami untuk mengajukan pertanyaan dan menghasilkan kesimpulan yang beralih ke pengetahuan. Angka-angka ini suci di zaman kuno karena mereka berjanji untuk membuka rahasia alam semesta.
+
+Mengapa musik standar pada 440 Hz
+Pada tahun 1800-an, ada perdebatan terus menerus di seluruh Eropa dan Amerika untuk menstandarkan musik. Frekuensi terus bergeser dari 417 menjadi 470 Hz.
+
+Kembali ke zaman Mozart, setiap instrumen dirancang dan disetel pada frekuensi 432 Hz. Hal-hal mulai berubah pada awal abad ke-20 ketika JC Deagan menggunakan koneksinya yang kaya untuk mengubah industri musik menjadi 440 Hz. Dia mulai melobi di seluruh Eropa.
+
+Pada tahun 1935, Yayasan Rockefeller berkepentingan untuk mengadopsi frekuensi 440 Hz sebagai bagian dari "perang melawan kesadaran".
+
+Maju cepat beberapa tahun ke 1939, Nazi Jerman.
+
+Frank Goebels, salah satu orang yang paling dibenci dalam sejarah modern, memutuskan bahwa musik apa pun harus berada pada frekuensi 440 Hz karena dia yakin musik itu dapat memaksa orang untuk berpikir dan bertindak dengan cara tertentu. Apakah mengejutkan bahwa Hitler berhasil mencuci otak seluruh bangsa selama bertahun-tahun?
+
+Frekuensi 440 Hz diberi label "Nada Setan" atau "Frekuensi Luciferian".
+
+Teori ini dimainkan dalam The Kingsman di mana karakter Samuel Jackson berencana untuk mengambil alih dunia dengan menimbulkan frekuensi radio yang dipancarkan melalui ponsel yang mengubah orang biasa menjadi gladiator jahat.
+
+Bicara tentang Berserkers modern!
+
+Frekuensi tinggi dan rendah
+Dengan frekuensi, lebih tinggi dan lebih kuat tidak selalu berarti lebih baik.
+
+Frekuensi yang lebih rendah saat ini dikenal sebagai binaural beats. Mereka direkomendasikan oleh banyak orang untuk meningkatkan fungsi motorik otak Anda dan membantu fokus dan kejernihan.
+
+Fungsi tubuh manusia dalam kisaran 62–72 Hz. Sekarang tidak ada bukti ilmiah yang mendukung hal ini, tetapi diyakini bahwa frekuensi yang lebih rendah dari 58 menunjukkan bahwa tubuh Anda sedang melawan flu atau pilek.
+
+Semakin rendah frekuensi Anda, semakin lemah tubuh Anda. Turun lebih rendah dari 42 dan Anda berisiko tinggi terkena kanker.
+
+Jika Anda berpikir untuk mengukur frekuensi Anda, saya dapat memberi tahu Anda bahwa ini bukanlah tugas yang mudah.
+
+Ilmu pengetahuan modern belum mengembangkan cara yang dapat diandalkan untuk mengukurnya karena studi tentang frekuensi dan getaran diabaikan dan terkadang dianggap pseudosains. Dalam pikiran saya, ini menyoroti pentingnya.
+
+Kita tidak bisa menjelaskan semuanya dengan rumus, terutama yang non fisik. Di sinilah kreativitas dan imajinasi Anda berperan. Jika sebuah ide masuk akal di kepala Anda, itu yang terpenting.
 Apakah ada daftar frekuensi penyembuhan solfeggio?
 Penasaran frekuensi penyembuhan mana yang harus dicoba terlebih dahulu? Ada beberapa frekuensi penyembuhan yang tersedia, tetapi di bawah ini adalah enam frekuensi solfeggio utama yang dikabarkan untuk menyeimbangkan pikiran, tubuh, dan jiwa.
 
